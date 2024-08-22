@@ -1,5 +1,5 @@
 - 👋 Hi, I’m HARISH 
-- 👀 I’m interested in CODING
+- 👀 I’m interested in CREATE ANY THING
 - 🌱 I’m currently learning JAVA SCRIPT
 - 💞️ I’m looking to collaborate on PROJECTS
 - 📫 How to reach me (Contact : harishharishaaaa@gmail.com)
